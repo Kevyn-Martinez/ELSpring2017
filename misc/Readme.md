@@ -1,2 +1,8 @@
 ## A directory for misellaneous stuff. 
-Nothing really relevant should be here!
+
+
+In this folder will be storaged all the misellaneous files such as pictures, music, videos, etc.
+
+Kevyn M.
+
+Suny New Paltz
